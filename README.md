@@ -1,0 +1,1 @@
+# takina0605.novel-contract.github.io
